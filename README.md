@@ -12,5 +12,5 @@ Hey! My name is Leonie, but you can call me Lilo! I am from Germany and I am qui
 - 💬 Ask me about anything!
 - 📫 How to reach me: Here or on Codédex with the same username!
 
-Furthermore I enjoy dancing, playing the piano and painting! I am also a LeagueOfLegends player, but don't worry - I am not toxic at all! I am usually the one who are hurt after somebody insults me haha!
+Furthermore I enjoy dancing 💃, playing the piano 🎹 and painting 🖌! I am also a LeagueOfLegends player, but don't worry - I am not toxic at all! I am usually the one who are hurt after somebody insults me haha!
 
